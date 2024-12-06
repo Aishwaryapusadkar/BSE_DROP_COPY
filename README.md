@@ -1,0 +1,1 @@
+# BSE_DROP_COPY
